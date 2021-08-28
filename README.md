@@ -1,2 +1,7 @@
-# TDMCLEIT
-COMMNADS
+#####################
+
+
+TDM CLEITN 1.0 BY BERLINZINMAKER MODDERDEXZY....
+
+
+CARREGANDO......
